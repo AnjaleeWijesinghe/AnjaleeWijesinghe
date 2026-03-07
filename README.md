@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **Android, MEARN**
 
-- 📫 How to reach me **anjaleeerandi2@gmail.com**
+- 📫 How to reach me **anjaleewijesinghe24@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
